@@ -292,7 +292,7 @@ Ale na razie... na razie po prostu cieszyli się przygodą razem.
 
 Dom na skraju miasta stał sobie dalej, dziwaczny i pełen tajemnic. Większość ludzi przechodziła obok niego, nie zwracając uwagi. Ale ci, którzy patrzyli uważnie, czasami mogli zobaczyć coś dziwnego – małe dzieci znikające przez drzwi, które nie powinny istnieć, i wracające z uśmiechem pełnym cudów.
 
-Bo to nie był zwykły dom. Był to Dom Między Światami. Miejsce, gdzie magia była realna, gdzie przygody czekały za każdymi drzwiami, gdzie dwoje dzieciaków – Ola i Jasiek – były Strażnikami tysląca światów.
+Bo to nie był zwykły dom. Był to Dom Między Światami. Miejsce, gdzie magia była realna, gdzie przygody czekały za każdymi drzwiami, gdzie dwoje dzieciaków – Ola i Jasiek – były Strażnikami tysiąca światów.
 
 I póki byli ciekawi, póki wierzyli w niemożliwe, drzwi pozostawały otwarte.
 

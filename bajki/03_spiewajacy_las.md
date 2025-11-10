@@ -90,7 +90,7 @@ Ania zamknęła oczy.
 
 Na początku słyszała tylko wiatr. Ale gdy słuchała uważniej, zaczęła rozróżniać dźwięki. Szmer liści – ale nie jeden szum, setki różnych szumów, każdy liść śpiewał swoją nutę. Śpiew ptaków – ale każdy ptak miał własną melodię. Szum strumienia gdzieś w oddali – rytm, który był podstawą wszystkiego.
 
-– *Słyszysz?* – zapytało Drzewo. – *Każda istota ma swoją muzykę. Muzykę swoje duszy. Zadanie to ją usłyszeć.*
+– *Słyszysz?* – zapytało Drzewo. – *Każda istota ma swoją muzykę. Muzykę swojej duszy. Zadaniem jest ją usłyszeć.*
 
 – To piękne – wyszeptała Ania, wciąż z zamkniętymi oczami.
 

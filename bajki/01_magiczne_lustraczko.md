@@ -48,7 +48,7 @@ Dziewczynka cofnęła się, serce waliło jej jak młotem.
 
 – Kto tam jest? To jakiś żart?
 
-– *Żaden żart. Jestem Lustrana, strażniczka Lustrzanej Krainy. Od pokoleń czekałam na kogoś z rodziny, kto znów odnajdzie bran. Twoja prababcia była ostatnią, która przekroczyła próg między światami.*
+– *Żaden żart. Jestem Lustrana, strażniczka Lustrzanej Krainy. Od pokoleń czekałam na kogoś z rodziny, kto znów odnajdzie bramę. Twoja prababcia była ostatnią, która przekroczyła próg między światami.*
 
 – Między... światami? – Zuzia poczuła, jak włosy jeżą jej się na karku. To było przerażające i ekscytujące jednocześnie.
 
@@ -260,7 +260,7 @@ Przy klatce stał strażnik – wielki wilk utkany z wody.
 
 – *Ostatnie pytanie* – zawarczał. – *Dlaczego naprawdę tu przyszłaś? Dla chwały? Dla przygody?*
 
-Zuzia spojrzała mu prosto w oczcy. I powiedziała prawdę:
+Zuzia spojrzała mu prosto w oczy. I powiedziała prawdę:
 
 – Na początku myślałam, że to będzie przygoda, coś ekscytującego. Ale teraz... – zawahała się. – Teraz wiem, że przyszłam tutaj, bo w głębi serca bałam się, że jestem zwyczajna. Nikim specjalnym. Chciałam udowodnić samej sobie, że się mylę. I wiesz co? Dowiedziałam się, że to w porządku być zwyczajną. Nie muszę ratować światów, żeby być wartościowa. Ale skoro już tu jestem... no cóż, pomogę. Bo to właściwa rzecz.
 

@@ -32,7 +32,7 @@ Jego norka miała specjalne komnaty na zapasy. Były już prawie pełne!
 
 – Jeszcze trochę! – mówił do siebie.
 
-Pewnego dnia zobaczył dużego maleńkiego chomiczka, który wyglądał na głodnego.
+Pewnego dnia zobaczył małego chomiczka, który wyglądał na głodnego.
 
 – Nie masz zapasów? – zapytał Chomiczek.
 

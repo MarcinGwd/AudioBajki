@@ -94,7 +94,7 @@ Hania usiadła na zimnej podłodze jaskini i słuchała.
 
 – *Było piękne* – smok westchnął, a z jego nozdrzy wypłynęła mgiełka lodu. – *Aż pewnego dnia przyszedł złodziej. Człowiek z chciwym sercem. Wiedział o moim Ogniu Serca i chciał go ukraść, by użyć jego mocy dla siebie. Zaczekał, aż zasnę, i zabił Ogień.*
 
-– *Bez Ognia Serca... zaczołem stygnąć. Z każdym dniem stawałem się zimniejszy. Moje czerwone łuski bladły, stawały się przezroczyste. Mój ciepły oddech zamienił się w zimno. I im bardziej tęskniłem za Ogniem, za ciepłem, tym zimniej się robiło. Więc zacząłem spać. Bo we śnie mogłem udawać, że wciąż jestem ciepły.*
+– *Bez Ognia Serca... zacząłem stygnąć. Z każdym dniem stawałem się zimniejszy. Moje czerwone łuski bladły, stawały się przezroczyste. Mój ciepły oddech zamienił się w zimno. I im bardziej tęskniłem za Ogniem, za ciepłem, tym zimniej się robiło. Więc zacząłem spać. Bo we śnie mogłem udawać, że wciąż jestem ciepły.*
 
 Hania poczuła łzy napływające do oczu. To była najsmutniejsza historia, jaką słyszała.
 
@@ -214,7 +214,7 @@ I coś cudownego się stało.
 
 Łuska rozbłysła jasnym, złotym światłem. A Ogień w kuli... Ogień rozpoznał część smoka. Rozpoznał ciepło serca dziewczynki, która przyszła pomóc.
 
-Szklana kula pękła. Ogień wystrzedł, ale nie spalił Hani. Przeciwnie – otoczył ją ciepłem, przytuleniem, radością.
+Szklana kula pękła. Ogień wystrzelił, ale nie spalił Hani. Przeciwnie – otoczył ją ciepłem, przytuleniem, radością.
 
 A potem wpłynął do Lodowej Łuski. Łuska zaabsorbowała Ogień, stała się ciepła jak mały słońce.
 

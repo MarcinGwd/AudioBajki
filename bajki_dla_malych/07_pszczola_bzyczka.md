@@ -52,7 +52,7 @@ Wleciała do ula akurat gdy zaczął padać mocny deszcz. Była mokra i zmęczon
 
 – Tak! – sapnęła Bzyczka. – I przyniosłam dużo nektaru!
 
-Inne pszczoły pomogły jej odło żyć nektar. Z nektaru robią miód – słodką, złotą paszę, którą jedzą zimą, gdy nie ma kwiatów!
+Inne pszczoły pomogły jej odłożyć nektar. Z nektaru robią miód – słodką, złotą paszę, którą jedzą zimą, gdy nie ma kwiatów!
 
 Pszczoła Królowa, największa i najważniejsza pszczoła w ulu, podeszła do Bzyczki.
 
@@ -81,4 +81,4 @@ I zasnęła szczęśliwa, mała, pracowita pszczółka, marząc o kolorowych kwi
 ---
 
 **Co można się nauczyć od pszczoły:**
-Pszczoły to niesamowicie pracowrite owady! Jedna pszczoła odwiedza od 50 do 100 kwiatów dziennie. Ich skrzydełka machają 200 razy na sekundę - dlatego brzęczą! Pszczoły żyją w społecznościach - w jednym ulu może mieszkać 50,000 pszczół! Każda ma swoją rolę: robotnice zbierają nektar, inne robią miód, a królowa składa jaja. Pszczoły są bardzo ważne - zapylają kwiaty, dzięki czemu rosną owoce i warzywa!
+Pszczoły to niesamowicie pracowite owady! Jedna pszczoła odwiedza od 50 do 100 kwiatów dziennie. Ich skrzydełka machają 200 razy na sekundę - dlatego brzęczą! Pszczoły żyją w społecznościach - w jednym ulu może mieszkać 50,000 pszczół! Każda ma swoją rolę: robotnice zbierają nektar, inne robią miód, a królowa składa jaja. Pszczoły są bardzo ważne - zapylają kwiaty, dzięki czemu rosną owoce i warzywa!

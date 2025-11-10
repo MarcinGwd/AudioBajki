@@ -46,9 +46,7 @@ Usiadła na gałęzi i nasłuchiwała. Jej uszy były ukryte pod piórami, ale s
 
 Szelest w trawie... to mysz!
 
-Mądralka obrócił
-
-a głowę. Sowy potrafią obracać głowę aż o 270 stopni! Prawie w całe koło!
+Mądralka obróciła głowę. Sowy potrafią obracać głowę aż o 270 stopni! Prawie w całe koło!
 
 Zobaczyła mysz i ciiiicho, nie robiąc żadnego hałasu, zleciała w dół. Jej miękkie pióra sprawiały, że leciała bezgłośnie jak duch.
 

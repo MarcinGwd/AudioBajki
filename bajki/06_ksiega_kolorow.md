@@ -140,7 +140,7 @@ Wyglądała jak cień, który nabrał trójwymiarowej formy. Nie miała twarzy, 
 
 Cień zawahał się.
 
-– *Księga... tak. Jest tutaj. Została przyślna niedawno. Zamknięta. Zamknięta przez Szarego Króla.*
+– *Księga... tak. Jest tutaj. Została przysłana niedawno. Zamknięta. Zamknięta przez Szarego Króla.*
 
 – Szarego Króla?
 

@@ -30,7 +30,7 @@ Promienie słońca przesił się przez pajęczyny i zaiskrzyły jak diamenty!
 
 Pajęczek usiadł w środku swojej pajęczyny, dumny ze swojej pracy.
 
-Wtedy przyleciała nieuwana mucha prosto w pajęczynę! BZZZZ!
+Wtedy przyleciała nieuważna mucha prosto w pajęczynę! BZZZZ!
 
 Pajęczyna zatrzęsła się, ale się nie zerwała! Była mocna!
 

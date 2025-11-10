@@ -64,7 +64,7 @@ Staś pomyślał o smutnej twarzy Karoliny, o tym, jak mama była dzisiaj jakaś
 
 – Kto go porwał?
 
-– Szary Lord – Puszek warknął cicho. – Istota ze Smogrowej Doliny, która żywi się smutkiem i szarością. Im bardziej świat staje się szary, tym silniejszy się staje. Ukradł Kulę i uwięził króla w swojej fortec. Musimy go uratować i odzyskać błękit.
+– Szary Lord – Puszek warknął cicho. – Istota ze Smogrowej Doliny, która żywi się smutkiem i szarością. Im bardziej świat staje się szary, tym silniejszy się staje. Ukradł Kulę i uwięził króla w swojej fortecy. Musimy go uratować i odzyskać błękit.
 
 – My? – zapytał Staś.
 
@@ -148,7 +148,7 @@ Staś przełknął ślinę. Ale potem pomyślał o mamie, o Karolinie, o wszystk
 
 Puszek i Staś ruszyli w drogę o świcie. Towarzyszyły im trzy małe chmurki – Wietrzka, Kropelka i Mgielka – które chciały pomóc.
 
-Podróż przez Chmurowe Królestwo była dziwna. Chodzenie po chmurach było jak chodzenie po bardzo miękkiej trawie – chyłyśmy nieco pod stopami, ale trzymały ciężar. Czasami mijali gospodarstwa chmur, gdzie chmurowe rodziny zbierały krople rosy do wielkich beczek. Wszyscy wyglądali smutnie.
+Podróż przez Chmurowe Królestwo była dziwna. Chodzenie po chmurach było jak chodzenie po bardzo miękkiej trawie – chwiały się nieco pod stopami, ale trzymały ciężar. Czasami mijali gospodarstwa chmur, gdzie chmurowe rodziny zbierały krople rosy do wielkich beczek. Wszyscy wyglądali smutnie.
 
 – Jak długo już trwa ta szarość? – zapytał Staś.
 
@@ -313,7 +313,7 @@ Staś poczuł ciepło w sercu.
 
 Gdy Staś schodził po srebrnej drabinie z powrotem na swoje wzgórze, czuł się inaczej. Jakby był trochę starszy, trochę mądrzejszy. Przeżył prawdziwą przygodę.
 
-Dotarł na dół. Drabina natychmiast zniknęła. Ale gdy spojrzał w górę, niebo było pięknie błękitne, z białymi, puszyami chgurkami.
+Dotarł na dół. Drabina natychmiast zniknęła. Ale gdy spojrzał w górę, niebo było pięknie błękitne, z białymi, puszystymi chmurkami.
 
 I jedna z chmur wyglądała dokładnie jak uśmiechający się kot. Puszek.
 

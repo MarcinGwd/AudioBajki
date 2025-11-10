@@ -194,7 +194,7 @@ Ruszył dalej.
 
 Druga komnata była trudniejsza do znalezienia. Tomek wędrował przez labirynty światła, mijał pokoje pełne starych pytań – niektóre miały odpowiedzi, niektóre nie. Wszystkie były piękne.
 
-Ciemna Cisza rosła. Czuł to. Światło wokół stawało się trocheniejsze, pytania cichsze.
+Ciemna Cisza rosła. Czuł to. Światło wokół stawało się trochę mniejsze, pytania cichsze.
 
 – Muszę się spieszyć – mruknął do siebie.
 
@@ -304,7 +304,7 @@ Wszyscy Gwiezdni Wędrowcy roześmieli się ciepło.
 
 ## Epilog: Powrót
 
-Gdy Tomek obudził się, leżał na tarasu nad garażem. Niebo bledło – był brzask. Czy to wszystko był sen?
+Gdy Tomek obudził się, leżał na tarasie nad garażem. Niebo bledło – był brzask. Czy to wszystko był sen?
 
 Ale potem spojrzał na swoje ręce. Przez chwilę, tylko przez krótką chwilę, zobaczył, że świecą łagodnym srebrem.
 

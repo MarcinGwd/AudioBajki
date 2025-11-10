@@ -20,7 +20,7 @@ Podpłynął do sieci i zaczął rozplątywać ją swoim dziobkiem. Ale sieć by
 
 – Potrzebuję pomocy! – pomyślał.
 
-Zawołał inne delfiny specjalnym gwizdem. Przyjechały całą grupą!
+Zawołał inne delfiny specjalnym gwizdem. Przypłynęły całą grupą!
 
 Razem pchnęły sieć tak mocno, że rybka się uwolniła!
 

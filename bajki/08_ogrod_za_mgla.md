@@ -74,7 +74,7 @@ Nie prawdziwe dzieci. Były przezroczyste, jak Echo. Niektóre były blade, praw
 
 – *W końcu znikają całkowicie. I dziecko w prawdziwym świecie staje się tylko pustą skorupą, która udaje kogoś innego przez całe życie.*
 
-Lena spojrzała na przezroczyste dzieci. Widziała chłopca, który wyglądał, jakby kochał książki, ale przen cały czas próbował grać w piłkę. Widziała dziewczynkę, która chciała być cicho, ale wszyscy chcieli, by była głośna.
+Lena spojrzała na przezroczyste dzieci. Widziała chłopca, który wyglądał, jakby kochał książki, ale przez cały czas próbował grać w piłkę. Widziała dziewczynkę, która chciała być cicho, ale wszyscy chcieli, by była głośna.
 
 Każde dziecko było częścią kogoś, kto próbował być kimś innym.
 

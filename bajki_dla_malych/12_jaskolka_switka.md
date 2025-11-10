@@ -1,6 +1,6 @@
 # Jaskółka Świtka i powrót do gniazda
 
-Małaołka Świtka siedziała na gałęzi w ciepłej Afryce i patrzyła na niebo. Było ciepło, słońce świeciło, ale Świtka czuła coś dziwnego w sercu – tęsknotę za domem.
+Mała jaskółka Świtka siedziała na gałęzi w ciepłej Afryce i patrzyła na niebo. Było ciepło, słońce świeciło, ale Świtka czuła coś dziwnego w sercu – tęsknotę za domem.
 
 – Czas wracać do Polski – powiedziała do siebie.
 

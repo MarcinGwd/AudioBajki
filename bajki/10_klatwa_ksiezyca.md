@@ -164,7 +164,7 @@ Przeszła wszystkie trzy próby.
 
 ## Rozdział 6: Nocnica
 
-Maj pchnęła drzwi i weszła na szczyt wieży.
+Maja pchnęła drzwi i weszła na szczyt wieży.
 
 Pokój był okrągły, z wysokimi oknami wychodzącymi na wszystkie strony. Ale przez okna nie było widać nic – tylko ciemność.
 
@@ -242,7 +242,7 @@ Czarownica uśmiechnęła się smutno.
 
 Nocnica kiwnęła głową, nie ufając swojemu głosowi.
 
-Maja zeszła z wieży, niosąc Księżyc. I gdy tylko wyszła na zewnątrz, Księżyc wystrzedł z jej rąk w niebo, wznosząc się wyżej, wyżej, aż zajął swoje miejsce na niebie.
+Maja zeszła z wieży, niosąc Księżyc. I gdy tylko wyszła na zewnątrz, Księżyc wystrzelił z jej rąk w niebo, wznosząc się wyżej, wyżej, aż zajął swoje miejsce na niebie.
 
 I nagle... noc się zmieniła.
 
